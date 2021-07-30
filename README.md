@@ -1,4 +1,1 @@
-i will have order 
-╲╲ 　
- ╲╲ 　　　
-  𒆙
+i will have order ╲╲𒆙
