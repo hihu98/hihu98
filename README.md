@@ -1,4 +1,3 @@
-```Sekai wa zankokuda, soredemo kimi wo aisu yo.```
+Sekai wa zankokuda, soredemo kimi wo aisu yo.
 
-
-```The world is cruel, but I still love you.```
+![The world is cruel, but I still love you](https://data.whicdn.com/images/334552417/original.jpg)
